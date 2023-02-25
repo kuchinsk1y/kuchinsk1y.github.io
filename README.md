@@ -1,1 +1,0 @@
-# kuchinsk1y.github.io
